@@ -1,7 +1,10 @@
-# mario kart 7
-## CLICK THE ROM ABOVE, THEN CLICK ON DOWNLOAD RAW ON THE RIGHT HAND SIDE OR ELSE THE DOWNLOAD WILL FAIL
+# Minecraft: Legacy Edition
+
+## CLICK THE CODE DROPDOWN, THEN DOWNLOAD ZIP!!
+
 
 
 Hey! You found my website! Thanks for downloading.
 
-https://styledelk.w3spaces.com
+https://styledelk.w10.site
+
